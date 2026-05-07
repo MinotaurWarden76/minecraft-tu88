@@ -1,4 +1,4 @@
-
+minecraft Scripts smart is the best minecraft Script, featuring auto-farm and teleport. Safe and powerful for all your needs.
 
 
 
